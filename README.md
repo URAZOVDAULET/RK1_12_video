@@ -1,0 +1,2 @@
+# RK1_12_video
+URAZOV DAULET RK1
